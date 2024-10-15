@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me nothing
-- 😄 Pronouns: she/her
+- 😄 Pronouns: ele/dela
 - ⚡ Fun fact: nothing
 
 <!---
